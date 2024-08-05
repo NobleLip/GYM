@@ -1,0 +1,1 @@
+![[desenvolvimento-militar-musculos-execucao.webp]]
